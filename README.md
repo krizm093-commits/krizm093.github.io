@@ -1,0 +1,2 @@
+# krizm093.github.io
+EDUCATIONAL PURPOSES
